@@ -19,11 +19,11 @@ ask for discord!
 
 **for anyone**
 
-enstars/Stranger Things fans on thin ice (i really like both, just the fans sometimes! 
+enstars/Stranger Things/spree fans on thin ice (i really like both, just the fans sometimes! 
 
 **people on pony town!**
 
-don't copy my stuff or color pick! if I don't respond I'm busy or in a call, I normally express how I feel with face expressions, I dont like texting on pt, (mainly whwen im on pc) but I'm not ignoring you! (also I wanna say something but by then it's too late, bc im thniking on what to say..) sorryy! 
+don't copy my stuff or color pick! if I don't respond I'm busy or in a call, I normally express how I feel with face expressions, I dont like texting on pt, (mainly when im on pc) but I'm not ignoring you! (also I wanna say something but by then it's too late, bc im thniking on what to say..) sorryy! 
 
 
 byeee! 
