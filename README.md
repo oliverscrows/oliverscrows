@@ -17,9 +17,6 @@ pronoun page . oliversz
 toy house . oliverscrows
 ask for discord!
 
-- **for anyone**
-
-enstars/Stranger Things/spree fans on thin ice (i really like both, just the fans sometimes! 
 
 - **people on pony town!**
 
@@ -27,6 +24,6 @@ don't copy my stuff or color pick! if I don't respond I'm busy or in a call, I n
 
 **DNI**. 
 - fit basic dni criteria 
-- transphobic, if you believe fiction doesn't affect reality, proshiper, racist, anti-black , against blm, all/blue lives matter nazi, alt-right, antisemitic, islamophobic, xenophobic, fujoshi/fundashin fetishize mlm relationships/pairings/etc romanticize abuse or mental illnesses, ableist, lgbtphobic, use slurs you can't reclaim. & more in carrd!
+- transphobic, if you believe fiction doesn't affect reality, proshiper, racist, anti-black , against blm, all/blue lives matter nazi, alt-right, antisemitic, islamophobic, xenophobic, fujoshi/fundashin fetishize mlm relationships/pairings/etc romanticize abuse or mental illnesses, ableist, lgbtphobic, use slurs you can't reclaim. & more in carrd! enstars/Stranger Things/spree fans on thin ice (i really like both, just the fans sometimes!  but just sometimes thin ice
 
 byeee! 
