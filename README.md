@@ -3,9 +3,7 @@
  https://oliverrscrow.carrd.co
  
 
- - **SOCIALS**
-
-instagram .oliverscrows / koroscrows
+ - **SOCIALS** instagram .oliverscrows / koroscrows
 YouTube . oliverscrows
 steam . oliverscrows
 Spotify . oliverscrows
@@ -18,9 +16,7 @@ toy house . oliverscrows
 ask for discord!
 
 
-- **people on pony town!**
-
-don't copy my stuff or color pick! if I don't respond I'm busy or in a call, I normally express how I feel with face expressions, I dont like texting on pt, (mainly when im on pc) but I'm not ignoring you! (also I wanna say something but by then it's too late, bc im thniking on what to say..) sorryy! i’m an awkward person so if I do not know how to reply I’ll probably be quiet.
+- **people on pony town!** don't copy my stuff or color pick! if I don't respond I'm busy or in a call, I normally express how I feel with face expressions, I dont like texting on pt, (mainly when im on pc) but I'm not ignoring you! (also I wanna say something but by then it's too late, bc im thniking on what to say..) sorryy! i’m an awkward person so if I do not know how to reply I’ll probably be quiet.
 
 
 - **DNI**. 
