@@ -15,8 +15,7 @@ transphobic, if you believe fiction doesn't affect reality, proshiper, racist, a
 If you do not support Irls or Systems. Don’t know what those are? Here’s some useful links to understand.
 [irls: ☆](https://das.crd.co) [Systems:★](https://plurality-hub.carrd.co/#enghome)
 
-- **BYF** 
-- I have a hard time processing things, so if I say I don’t understand please explain it in a different way so I can process it. I’m a dry Texter, so if you think I’m angry I am not. I normally text dry if I have lack of motivation or busy. With any of the medias that I enjoy, **I do not support the problematic creators.** I like to spell in all lower case. n more
+- **BYF** I have a hard time processing things, so if I say I don’t understand please explain it in a different way so I can process it. I’m a dry Texter, so if you think I’m angry I am not. I normally text dry if I have lack of motivation or busy. With any of the medias that I enjoy, **I do not support the problematic creators.** I like to spell in all lower case. n more
 
 
 
