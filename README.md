@@ -11,7 +11,13 @@
 
 - **DNI**. 
 -fit basic dni criteria 
-transphobic, if you believe fiction doesn't affect reality, proshiper, racist, anti-black , against blm, all/blue lives matter nazi, alt-right, antisemitic, islamophobic, xenophobic, fujoshi/fundashin fetishize mlm relationships/pairings/etc romanticize abuse or mental illnesses, ableist, lgbtphobic, use slurs you can't reclaim. & more in carrd! enstars/Stranger Things/spree fans on thin ice (i really like both, just the fans sometimes!  but just sometimes thin ice
+transphobic, if you believe fiction doesn't affect reality, proshiper, racist, anti-black , against blm, all/blue lives matter nazi, alt-right, antisemitic, islamophobic, xenophobic, fujoshi/fundashin fetishize mlm relationships/pairings/etc romanticize abuse or mental illnesses, ableist, lgbtphobic, use slurs you can't reclaim. & more in carrd! enstars/Stranger Things/spree fans on thin ice (i really like both, just the fans sometimes!  but just sometimes thin ice. 
+If you do not support Irls or Systems. Don’t know what those are? Here’s some useful links to understand.
+[irls: ☆](https://das.crd.co) [Systems:★](https://plurality-hub.carrd.co/#enghome)
+
+- **BYF** 
+- I have a hard time processing things, so if I say I don’t understand please explain it in a different way so I can process it. I’m a dry Texter, so if you think I’m angry I am not. I normally text dry if I have lack of motivation or busy. With any of the medias that I enjoy, **I do not support the problematic creators.** I like to spell in all lower case. n more
+
 
 
 - I am comfortable with people being older than me as long as you just respect my boundaries. the same goes for EVERYONE.
