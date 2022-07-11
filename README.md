@@ -8,6 +8,8 @@
 
 - **people on pony town!** don't copy my stuff or color pick! if I don't respond I'm busy or in a call, I normally express how I feel with face expressions, I dont like texting on pt, (mainly when im on pc) but I'm not ignoring you! (also I wanna say something but by then it's too late, bc im thniking on what to say..) sorryy! i’m an awkward person so if I do not know how to reply I’ll probably be quiet.
 
+when my ponys says "Copinglink" - A copinglink is a voluntarily identity as or with a nonhuman or a fictional entity in order to cope with trauma, stress, mental illness, or something else. A copinglinker may or may not permanently retain this identity. In many cases, one can drop their link once they no longer need it. 
+
 
 - **DNI**. 
 -fit basic dni criteria 
